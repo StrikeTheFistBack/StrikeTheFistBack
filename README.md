@@ -43,4 +43,4 @@
 # 无理
 [女子要求司机逆行被拒后报警](https://www.163.com/dy/article/GHSEKL880534JS9O.html)
 
-- Telegram [南拳](https://t.me/nanquanz)
+- Telegram [南拳](https://t.me/nanquan1)
